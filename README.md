@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @crisxross Subhend Majhi
-- 👀 I’m interested in Data Science, Anime, DJ(Mixing), travel, Gym, party, music, girls, food and preety much everything lol ! 💋
+- 👀 I’m interested in Data Science, Anime, DJ(Mixing), travel, Gym, party, music, food and preety much everything lol ! 
 - 🌱 I’m currently learning more about data science and AI
 - 💞️ I’m looking to collaborate on any projects, oppurtunities, jobs, contracts you name them !  
 - 📫 How to reach me ? - My social links are avaialabe on my profile bio. 😎
